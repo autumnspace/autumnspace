@@ -1,0 +1,4 @@
+- 👋 welcome to my profile, im @autumnspace
+- 👀 i like gaming
+- 🌱 I’m currently on how to manage to be a youtuber, so it would be helpful by subscribing to autumn @Charliegamez. on YouTube.
+- 💞️ I’m looking to collaborate on YouTube, with my friends.
